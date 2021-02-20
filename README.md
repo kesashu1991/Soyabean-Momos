@@ -1,0 +1,1 @@
+Momos are one of the most famous street foods in northern India. People love savouring this snack throughout the year. Served with spicy red hot chutney, momos can be made healthy by filling it with wholesome high-protein soya bean chunks. Not only it enhances the taste, but it also reduces the chances of catching some of the deadly diseases.
